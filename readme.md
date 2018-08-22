@@ -16,3 +16,9 @@
 
 ### Things that have been working for me in regards to general improvement
 - **Do less than you think you can**. Focus on consistency of healthy habits rather than duration. I've kept my workouts to 20 minutes and have seen a large increase in consecutive days worked out and number avg number of days per week worked out. I've also applied this to reading and learning.
+
+## Juice generally isn't healthy
+* Fruit juice is missing a lot of the stuff that makes whole fruit healthy
+* liquid calories don't work the same way as calories from solid foods. When people add liquid calories to their diet, like apple juice, they don't compensate by eating less of other foods instead 
+* sugary drinks are among the most fattening foods in existence. They don't contribute to fullness, making us eat more overall
+* Eat Whole Fruit, But Skip the Juice, it's not healthy
